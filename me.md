@@ -1,5 +1,11 @@
 # Me!
 
+## Important information
+
+### Student loans
+
+ART ID: 87144277621
+
 ## Goals
 
 - do the right thing?
@@ -46,8 +52,8 @@
   - instilled sense of ethics and things
 - UK history protects me
 - Aus history protected me
-- Students in Aus helped me with homing
-  - Will with dreads and his GF
+- Peeps in aus helped me with homing
+  - Dude with dreads and his GF
   - Clair a bit
   - Pigeon woman Terran
   - Tonielle
@@ -68,8 +74,7 @@
     - dave worked on windmills
     - other people in that house who were nice
     - everyone running that community
-  - Bushy bloke from Northy!
-    - dave?
+  - Bushy bloke (pete? dave?) from Northy!
   - Bushy bloke's mate sleeping under cars?
   - Big ginger beard awesome slap bass metal \m/
   - Alice Love, Goth girl who scared me but was fun
@@ -98,11 +103,11 @@
   - Gaea
   - Gaia
   - Little Emily and Camp guy's best friend
-  - Camp guys in that house
+  - Camp guys in that house (tall one and lawyer)
   - Sue
-  - Fullmetal Laughting
+  - Fullmetal Laughting (Linda)
   - Kunio
-  - Abdel
+  - Abdul
   - Junghoon
   - Cheyenne
   - Janne
