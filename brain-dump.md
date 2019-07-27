@@ -35,3 +35,33 @@
 - Goals can be measured by relative movements between entities
 - Moral actions can be measured
 - Moral actions can be objective when considered in relative terms
+
+## To do good
+
+- I think permaculture is important
+
+What systems and structures are needed:
+- local systems of sustenance (food)
+  - trees, veggies, grains, nuts, legumes,
+- harmonious process of waste and growth (food and products)
+- specialized skills for advanced stuff
+  - airplanes
+  - mobile phones, laptops?
+  - creating the parts requires rare earths
+  - assembly might be able to take place locally
+
+What do we already have?
+- specialized skills, factories,
+- transport systems
+- comparative advantage, so benefit from trade
+- lots of products
+- lots of waste
+- terrible capital/resource/opportunity distribution
+
+What's fucked?
+- waste is damaging to ecosystems
+- production is damaging to ecosystems
+- inefficient use of energy by people (e.g. products flying around the planet)
+
+Steps to get the systems and structures:
+- make economies more self sustaining and less depending on trade
